@@ -1,1 +1,1 @@
-my blog and other image hosting
+my blog and other website image hosting
